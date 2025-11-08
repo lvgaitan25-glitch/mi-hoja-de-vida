@@ -9,7 +9,7 @@ Tecnóloga en gestión hotelera con amplio conocimiento y experiencia laboral en
 ## Habilidades
 - Conocimientos básicos en programación
 - Uso de herramientas colaborativas como GitHub# mi-hoja-de-vida
-##EXPERIENCIA PROFESIONAL
+## Experiencia profesional
 -MUEBLES - ARTE
 18/10/2020 - Actualmente
 Auxiliar Administrativo
