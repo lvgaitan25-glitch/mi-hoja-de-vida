@@ -19,10 +19,14 @@ Tecnóloga en gestión hotelera con amplio conocimiento y experiencia laboral en
 Auxiliar Administrativo
 Encargada de atender y captar nuevos clientes, realizar control y seguimiento a los insumos, realizar compras y negociación de materia prima, realizar facturación y cierres caja.
 - INVERSIONES GRANO DE ORO S.A.S.
+
 01/07/2018 - 01/07/2020
+
 Administradora
 Administrar salón de eventos, alquilar o vender de productos y servicios, realizar cotizaciones, elaborar contratos, facturación, realizar seguimiento al personar de aseo y mantenimiento.
 - VIALES FALABELLA
+
 06/07/2017 - 28/03/2018
+
 Analista de Operaciones
 Facturacion de tiquetes y hoteles, crear recibos de caja para realizar arqueo de caja, manejo de archivo del área corporativo y
