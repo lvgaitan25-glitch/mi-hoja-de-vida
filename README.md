@@ -14,8 +14,11 @@ Tecnóloga en gestión hotelera con amplio conocimiento y experiencia laboral en
 - Conocimientos básicos en programación
 - Uso de herramientas colaborativas como GitHub# mi-hoja-de-vida
 ## Experiencia profesional
+
 - MUEBLES - ARTE
+- ¿
 18/10/2020 - Actualmente
+  
 Auxiliar Administrativo
 Encargada de atender y captar nuevos clientes, realizar control y seguimiento a los insumos, realizar compras y negociación de materia prima, realizar facturación y cierres caja.
 - INVERSIONES GRANO DE ORO S.A.S.
