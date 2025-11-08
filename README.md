@@ -1,7 +1,7 @@
 # Mi hoja de vida
 **Nombre completo:** Leidy Vanesa Gaitan Suarez
-
 **Correo electrónico:**  lvgaitan25@gmail.com
+**Telefono:**  3195102649
 ## Objetivo
 Tecnóloga en gestión hotelera con amplio conocimiento y experiencia laboral en ventas tangibles e intangibles, servicio al cliente, facilidad de expresión y excelente fluidez verbal, digitación, elaboración de facturas, análisis y conciliación en estados de cuentas, con facultades para trabajar en equipo; liderazgo de proyectos, desarrollo
 ## Formación académica
